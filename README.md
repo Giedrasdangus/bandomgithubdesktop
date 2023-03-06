@@ -1,0 +1,2 @@
+# bandomgithubdesktop
+ mano bandymas
